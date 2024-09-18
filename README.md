@@ -18,6 +18,7 @@
 
 <p align="center"
 
-![image](https://github.com/user-attachments/assets/da8ace1c-1d8a-4483-a045-553d6dde701b) [Retrospring](https://retrospring.net/@Biccy)
+![image](https://github.com/user-attachments/assets/da8ace1c-1d8a-4483-a045-553d6dde701b)   [Retrospring](https://retrospring.net/@Biccy) . [Rentry](https://rentry.co/catlike-elegance) . [Family Tree](https://rentry.co/HoHfamilytree) . [Spotify](https://open.spotify.com/user/31tfxr23x6qzxqgwavqika6fry5a?si=dOgGo-UxQLaX40HDxkpLeQ) ![image](https://github.com/user-attachments/assets/b4ec0b28-2421-460e-81eb-c31f33753fc5)
+
 
 </p>
