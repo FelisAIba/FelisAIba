@@ -5,6 +5,12 @@
 </p>
 
 <p align="center"
+
+Entering Standby Mode... I hope nobody disturbs me.
+
+</p>
+
+<p align="center"
   
 ![image](https://github.com/user-attachments/assets/838e9fbc-0691-4af0-885a-6fd1fcd0da29)
 
