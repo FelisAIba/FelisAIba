@@ -6,6 +6,6 @@
 
 <p align="center"
   
-![image](https://github.com/user-attachments/assets/44644446-1ccb-4778-a18a-1fc99ab10a65)
+![image](https://github.com/user-attachments/assets/838e9fbc-0691-4af0-885a-6fd1fcd0da29)
 
 </p>
